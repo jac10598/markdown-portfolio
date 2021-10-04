@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Watch the Mets
+2. Cry
+3. Do it again 
